@@ -5,3 +5,5 @@ Meu nome é Thamyres Wirmond
 - Utilizo esse espaço para minha organização e compartilhamento dos projetos desenvolvidos;
 
   ## Você pode entrar em contato comigo através do email wirmondt@gmail.com 📫
+
+  ![](https://media.tenor.com/TmJWz4ZkSfQAAAAS/claire-dancing.gif)

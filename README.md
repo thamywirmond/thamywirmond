@@ -6,4 +6,4 @@ Meu nome é Thamyres Wirmond
 
   ## Você pode entrar em contato comigo através do email wirmondt@gmail.com 📫
 
-  ![](https://media.tenor.com/TmJWz4ZkSfQAAAAS/claire-dancing.gif)
+  ![](bhttps://media.tenor.com/6IK22ph_bBEAAAAd/done-congrats.gif)

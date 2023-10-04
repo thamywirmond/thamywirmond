@@ -7,3 +7,4 @@ Meu nome é Thamyres Wirmond
   ## Você pode entrar em contato comigo através do email wirmondt@gmail.com 📫
 
   ![](https://media.tenor.com/EnRojaH2AH4AAAAC/confused-meme.gif)
+
